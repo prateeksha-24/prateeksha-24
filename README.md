@@ -1,4 +1,4 @@
-Hi 👋 My name is Pratiksha Chaturvedi
+Hi 👋 My name is Prateeksha Chaturvedi.
 =====================================
 
 MBA Student-Enthusiast Business Analyst
